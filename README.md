@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Esta128
+- 👋 Hi, I’m Esther Umahi
 - 👀 I’m interested in Ux/Ui Design, Web and App Development
 - 🌱 I’m currently learning HTML, CSS & Javascript
 - 💞️ I’m looking to collaborate on Ux/Ui designs and Website
