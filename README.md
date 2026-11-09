@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Esther Umahi
-- 👀 I’m interested in Product and UX Design and App Development
+- 👀 I’m interested in Product/UX Design and App Development
 - 💞️ I’m looking to collaborate on Ux/Ui designs and Website
 - 📫 How to reach me - Chat me up on https://www.linkedin.com/in/esther-umahi/
 
